@@ -1,1 +1,0 @@
-# SRU-art-project
